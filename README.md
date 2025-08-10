@@ -1,16 +1,14 @@
-## Hi there 👋
+## hello viktor nation
 
-<!--
-**JayceTruther/JayceTruther** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![ca31bb958c1f4bff14bb4d797392d1fc](https://github.com/user-attachments/assets/ad6c3359-2966-4c3c-a39b-75b7d4616681)
 
-Here are some ideas to get you started:
+hi im danny i love video game.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+jayce stan, jaymelvic wouldve been better
+
+dni if you don't fw mel
+
+
+basic dni criteria
+
+antisocial weirdo with beautiful princess disorder
