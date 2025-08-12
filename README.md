@@ -1,7 +1,7 @@
 ## hello viktor nation
 ![ca31bb958c1f4bff14bb4d797392d1fc](https://github.com/user-attachments/assets/4d35fd1d-aa8b-4393-b022-dea23f49c86a)
 
-hi im preston i love video game.
+hi im danny i love video game. any prns.
 
 jayce stan, jaymelvic wouldve been better
 
